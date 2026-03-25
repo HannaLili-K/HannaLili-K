@@ -4,9 +4,9 @@ Before that, I worked as a Talent Sourcer, screening thousands of LinkedIn profi
 
 Alongside recruitment, I also support job seekers as a Career & CV Consultant.
 My goal is to help candidates present themselves clearly, professionally, and in a way that speaks to both recruiters and AI/ATS screening systems.
--🚀 What I Can Help You With
--📄 CV / Resume Review & Optimization: Clear, professional, recruiter-friendly structure, Optimized for ATS / AI screening ,Achievement-focused content that highlights your strengths
--🔍 LinkedIn Profile Optimization: Strong headline + About section, Keyword strategy to increase visibility, Profile positioning for your target roles
--🎯 Career & Job Search: GuidanceStrategy for getting noticed, How to position yourself for IT and non-IT roles, Personalized advice from a recruiter's perspective
--💡 Insider Recruitment Insights: How recruiters actually think, What makes a profile stand out, Tips to avoid common red flags
+-->🚀 What I Can Help You With
+-->📄 CV / Resume Review & Optimization: Clear, professional, recruiter-friendly structure, Optimized for ATS / AI screening ,Achievement-focused content that highlights your strengths
+-->🔍 LinkedIn Profile Optimization: Strong headline + About section, Keyword strategy to increase visibility, Profile positioning for your target roles
+-->🎯 Career & Job Search: GuidanceStrategy for getting noticed, How to position yourself for IT and non-IT roles, Personalized advice from a recruiter's perspective
+-->💡 Insider Recruitment Insights: How recruiters actually think, What makes a profile stand out, Tips to avoid common red flags
 -->
