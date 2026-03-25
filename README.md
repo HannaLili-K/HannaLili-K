@@ -1,7 +1,4 @@
 ## 👋 Hi, I’m glad you're here!
-
-<!--
-**HannaLili-K/HannaLili-K** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 I'm an IT Recruiter with 5+ years of experience, working both on the agency side and currently hiring for a U.S. multinational company.
 Before that, I worked as a Talent Sourcer, screening thousands of LinkedIn profiles and CVs — so I know exactly what stands out to recruiters and what gets filtered out instantly.
 
