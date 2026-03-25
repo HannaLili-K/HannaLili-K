@@ -1,5 +1,5 @@
 ## 👋 Hi, I’m glad you're here!
-I'm an IT Recruiter with 5+ years of experience, working both on the agency side and currently hiring for a U.S. multinational company.
+I'm an IT Recruiter with 5+ years of experience, working both on the agency side and currently hiring for a U.S. IT multinational company.
 Before that, I worked as a Talent Sourcer, screening thousands of LinkedIn profiles and CVs — so I know exactly what stands out to recruiters and what gets filtered out instantly.
 
 Alongside recruitment, I also support job seekers as a Career & CV Consultant.
