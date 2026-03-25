@@ -10,3 +10,6 @@ My goal is to help candidates present themselves clearly, professionally, and in
 * 🔍 LinkedIn Profile Optimization: Strong headline + About section, Keyword strategy to increase visibility, Profile positioning for your target roles
 * 🎯 Career & Job Search: GuidanceStrategy for getting noticed, How to position yourself for IT and non-IT roles, Personalized advice from a recruiter's perspective
 * 💡 Insider Recruitment Insights: How recruiters actually think, What makes a profile stand out, Tips to avoid common red flags
+
+*  📩I would love to help you out! Send me a private message and I'll be happy to support you.
+Good luck with your job search!🍀
