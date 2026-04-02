@@ -13,4 +13,5 @@ My goal is to help candidates present themselves clearly, professionally, and in
 
 📩I would love to help you out! Send me a private message and I'll be happy to support you.
 Good luck with your job search!🍀
+
 ![coverpicuter-CVtanácsadas](https://github.com/user-attachments/assets/582bf4e8-5459-4f00-b8b8-b03b389874c9)
