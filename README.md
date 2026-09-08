@@ -1,8 +1,9 @@
 ## 👋 Hi, I’m glad you're here!
-I'm an IT Recruiter with 4+ years of experience, working both on the agency side and currently hiring for a U.S. IT multinational company.
-Before that, I worked as a Talent Sourcer, screening thousands of LinkedIn profiles and CVs, so I know exactly what stands out to recruiters and what gets filtered out instantly.
+I hold a degree in Economics & HR, specialising in the intersection of markets and talent. My experience spans from IT startups to a major U.S. tech multinational, headhunting roles from niche developers to PhD researchers. Beyond recruitment, I provide expert Outplacement support, helping firms manage transitions by guiding departing talent with winning career strategies and market insights.
 
-Alongside recruitment, I also support job seekers as a Career & CV Consultant.
+Alongside this, I am currently pursuing a Postgraduate Specialisation Programme in Economist Specialised in Environmental, Social, and Governance (ESG) at a leading university of economics, which I aim to leverage in building ESG-driven, sustainability-focused workforce strategies.
+
+As a recruitment, I also support job seekers as a Career & CV Consultant.
 My goal is to help candidates present themselves clearly, professionally, and in a way that speaks to both recruiters and AI/ATS screening systems.
 
 🚀 What I Can Help You With
