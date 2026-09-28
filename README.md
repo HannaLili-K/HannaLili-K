@@ -8,7 +8,7 @@ Currently, I work for a major U.S.-based multinational tech company. While my pr
 
 Having managed the process from the inside for years, I possess the expertise to support both sides of the talent lifecycle. Whether it is identifying top-tier talent through headhunting or providing professional Outplacement support, I know exactly how to guide a transition. I help companies navigate organizational changes by ensuring departing employees are equipped with winning career strategies and the right direction for their next step.
 
-**What's next: Sustainable recruitment/HR
+**What's next: Sustainable recruitment/HR**
 I have recently begun further studies at Corvinus University, specialising as an ESG expert, with the aim of becoming a Sustainability HR/Recruiter. Over the years, I have seen many companies make costly mistakes: they build their strategies and hire without a sustainable, long-term perspective. I am convinced that this can be done better, and having worked with a wide range of organisations, I am confident that I can help.
 My studies focus on risk analysis, with an emphasis on two types of risk assessment. This allows me to look at talent decisions not only through the lens of the immediate hiring need, but also through the risks and long-term impact they carry for the company, its people and its stakeholders.
 
