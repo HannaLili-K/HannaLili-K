@@ -14,5 +14,6 @@ My studies focus on risk analysis, with an emphasis on two types of risk assessm
 
 📩I would love to help you out! Send me a private message and I'll be happy to support you.
 
-<img width="1280" height="720" alt="Beige Black Minimal Typecentric Love Romance Love Songs YouTube Thumbnail" src="https://github.com/user-attachments/assets/92fec7b2-2c8b-4042-95eb-2317b093f32f" />
+[Hanna-Kardos.pdf](https://github.com/user-attachments/files/33980446/Hanna-Kardos.pdf)
+
 
