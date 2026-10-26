@@ -14,6 +14,7 @@ My studies focus on risk analysis, with an emphasis on two types of risk assessm
 
 📩I would love to help you out! Send me a private message and I'll be happy to support you.
 
-[Hanna-Kardos.pdf](https://github.com/user-attachments/files/33980446/Hanna-Kardos.pdf)
+<img width="2000" height="1414" alt="brosura1" src="https://github.com/user-attachments/assets/8127dc44-564c-4d6b-8fa1-4d0454826e8d" />
+
 
 
